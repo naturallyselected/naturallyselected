@@ -1,16 +1,16 @@
-## Hi there 👋
+## read this shit
 
-<!--
-**naturallyselected/naturallyselected** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Hi i'm Roman, I'm the host of a OSDD system
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+healing survivor of RAMCOA / shizo idiot
+
+theistic satanist, practicing priest
+
+i like tcc, metal, cars and guns n my bf
+
+[pronouns](https://pronouns.cc/@nirvanasystem) ‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‎‏‏‎ ‏‏‎ ‎‎‎‎ [patreon](patreon.com/CAVEEXPLORER)  
+I'm most active on pt, wpd, ddos forums 👍
+
+
+##
